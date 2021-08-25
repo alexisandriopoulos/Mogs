@@ -1,1 +1,1 @@
-https://alexis-andriopoulos.github.io/Mogs/
+https://alexisandriopoulos.github.io/Mogs/
